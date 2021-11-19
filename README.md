@@ -1,4 +1,4 @@
-[![ko-fi](https://i.imgur.com/8QNwOj9.png)](https://ko-fi.com/blackhacker)
+[![Support Me!](https://i.imgur.com/iE2JwyI.png)](https://ko-fi.com/blackhacker)
 
 <p align="center">
  <img src="https://e.top4top.io/p_1759cl1t61.png" alt="" />
