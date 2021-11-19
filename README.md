@@ -1,5 +1,9 @@
 [![Support Me!](https://i.imgur.com/FdpXcA7.png)](https://pastebin.com/raw/qhhqWpHt)
 
+<p align="left">
+<a href="https://pastebin.com/raw/qhhqWpHt"><img align="left" src="https://i.imgur.com/FdpXcA7.png" /></a>
+</p>
+
 <p align="center">
  <img src="https://e.top4top.io/p_1759cl1t61.png" alt="" />
 </p>
