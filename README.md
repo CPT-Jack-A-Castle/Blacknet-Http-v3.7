@@ -1,6 +1,4 @@
-[![Support Me!](https://i.imgur.com/FdpXcA7.png)](https://pastebin.com/raw/qhhqWpHt)
-
-<b><u>Support Me!!!</u></b>
+<b><u>Please Support Me!!!</u></b>
 <p align="left">
 <a href="https://pastebin.com/raw/qhhqWpHt"><img align="left" src="https://i.imgur.com/FdpXcA7.png" /></a>
 </p>
