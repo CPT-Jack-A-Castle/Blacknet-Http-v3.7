@@ -1,7 +1,7 @@
 [![Support Me!](https://i.imgur.com/FdpXcA7.png)](https://pastebin.com/raw/qhhqWpHt)
 
+<b><u>Support Me!!!</u></b>
 <p align="left">
-<b>Support Me!!!</b>
 <a href="https://pastebin.com/raw/qhhqWpHt"><img align="left" src="https://i.imgur.com/FdpXcA7.png" /></a>
 </p>
 
