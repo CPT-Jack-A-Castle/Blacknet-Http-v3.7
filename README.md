@@ -1,4 +1,4 @@
-<b><u>Please support me by donating here!!!</u></b>
+## Please support me by donating here!!!
 <p align="left">
 <a href="https://pastebin.com/raw/qhhqWpHt"><img align="left" src="https://i.imgur.com/FdpXcA7.png" /></a>
 </p>
